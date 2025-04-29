@@ -1,6 +1,6 @@
 # SafeUM
 For id and password of SafeUM 
-# Create +994 WhatsApp virtual account
+# Create +91 WhatsApp virtual account
 
 ___This Tool is Free___</br>
 
